@@ -1,4 +1,4 @@
-###Hi friend 👋
+### Hi friend 👋
 
 - 🔭 I’m currently working on building my skills as a Biomedical Engineer to include Full Stack Software Development because coding is so much fun!
 - 🌱 I’m currently learning JavaScript, HTML, and CSS
