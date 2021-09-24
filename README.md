@@ -6,5 +6,6 @@
 - 🤔 I’m looking for help with Data Structures and Algorthms 
 - 💬 Ask me about books, watercolor painting, or aquascaping 
 - 📫 How to reach me: amberbancroft2@gmail.com
+- 💻 portfolio: https://amberbancroft.github.io/
 - 😄 Pronouns: she/her/herself
 - ⚡ Fun fact: I love yoga 🧘‍♀️
