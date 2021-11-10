@@ -7,5 +7,5 @@
 - 💬 Ask me about books, watercolor painting, or aquascaping 
 - 📫 How to reach me: amberbancroft2@gmail.com
 - 💻 portfolio: https://amberbancroft.github.io/
-- 😄 Pronouns: she/her/herself
+- 😄 Pronouns: she/they
 - ⚡ Fun fact: I love yoga 🧘‍♀️
